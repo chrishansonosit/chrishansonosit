@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chrishansonosit
 - 👀 I’m interested in cool things
-- 🌱 I’m currently learning cool tjhings
+- 🌱 I’m currently learning cool things
 - 💞️ I’m looking to collaborate on cool things
 
 
